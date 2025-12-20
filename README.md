@@ -1,1 +1,0 @@
-# XSTK_NguyenNhuThanh
